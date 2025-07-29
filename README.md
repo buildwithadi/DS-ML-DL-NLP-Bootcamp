@@ -60,7 +60,7 @@ This learning journey is powered by the excellent course created by **[Krish Nai
 
 ## 🙌 Connect with Me
 - 🔗 [LinkedIn](https://www.linkedin.com/in/buildwithadi/)
-- 📧 Email: adityarawat.work@gmail.com
+- 📧 Email: adityarawat.online@gmail.com
 
 ---
 
